@@ -33,7 +33,7 @@ Journeying through this path, I'm continually learning, adapting, and growing. A
 
 ## 📫 Contact
 - 📧 Email: [doanminhtruong.dev@gmail.com](mailto:doanminhtruong.dev@gmail.com)
-- 📞 Phone: [Y+84 934328213]
+- 📞 Phone: [+84 934328213]
 
 ---
 
