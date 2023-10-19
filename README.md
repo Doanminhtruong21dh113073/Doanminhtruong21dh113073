@@ -12,4 +12,4 @@ Journeying through this path, I'm continually learning, adapting, and growing. A
 
 ---
 
-⭐️ From [Rot]([https://github.com/Rot](https://github.com/Doanminhtruong21dh113073)https://github.com/Doanminhtruong21dh113073)
+⭐️ From [Rot](https://github.com/Doanminhtruong21dh113073)
