@@ -4,7 +4,7 @@ Amidst the rapidly evolving tech landscape, I, Rot, stand firmly rooted in my as
 
 The fusion of creative design with seamless functionality fascinates me, and I envision myself crafting web solutions that are not just efficient, but also aesthetically captivating. 🎨
 
-![Coding Animation]([https://media3.giphy.com/media/YQitE4YNQNahy/giphy.gif](https://media1.giphy.com/media/2IudUHdI075HL02Pkk/giphy.gif?cid=ecf05e476a17lsvtnjss79fmkqqygyrkkeczyv5rcxvcu63o&ep=v1_gifs_search&rid=giphy.gif&ct=g))
+![Coding Animation](https://i.giphy.com/media/2IudUHdI075HL02Pkk/giphy.webp)
 
 **Above image:** A representation of my passion for coding, always in motion, always evolving.
 
